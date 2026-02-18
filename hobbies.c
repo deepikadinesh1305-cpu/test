@@ -1,2 +1,2 @@
 "I AM KARATE EXPERT"
-"I AM LOVER GIRL"
+"I love to be in ARMY"
